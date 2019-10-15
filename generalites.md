@@ -1,1 +1,1 @@
-Generalités
+Généralités
